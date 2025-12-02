@@ -1,1 +1,1 @@
-Playing around with apple apps and my whoop
+Playing around with apple apps, bluetooth, and my whoop
